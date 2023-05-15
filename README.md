@@ -1,1 +1,2 @@
-# 2h2t
+# Aula sgundo trimetre
+jordana - 17
